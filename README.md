@@ -1,2 +1,2 @@
 # hello-world
-my project
+very excited to do and learn new things.
